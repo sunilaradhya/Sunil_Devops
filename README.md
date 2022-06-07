@@ -7,4 +7,7 @@ this is ullas
 ullas from hyr
 hyr after ptlali ranganathapura
 after ranganathapura moni daba
-moni daba after aranakatte
+moni daba after aranakattGe
+hi bangalore weather good than shimla
+shimla locates in North india
+
